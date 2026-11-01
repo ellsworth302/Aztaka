@@ -217,4 +217,4 @@ Aztaka is available as a full free version, ensuring all features and updates ar
 Don't miss out on the adventure! Download Aztaka today and protect your tribe from the gods!
 
 ---
-**Last updated:** 2026-11-01 15:56:16 UTC
+**Last updated:** 2026-11-01 20:09:55 UTC
